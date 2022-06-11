@@ -1,5 +1,1 @@
-我是谁？
-
-我从哪里来？
-
-我要到哪里去？
+It's the way you should go.
